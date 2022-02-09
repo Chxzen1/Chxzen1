@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chxzen1
+- 👀 I’m interested in video games
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on retro bowl and emulators
+- 📫 How to reach me - you will never know...
